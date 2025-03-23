@@ -79,7 +79,7 @@
 
 ## 🎒 Образование
 [<img src="/2025-03-22 12.18.45.jpg" width="280px" hspace="10px" alt="Диплом»">](https://raw.githubusercontent.com/vladsalatbed/vladsalatbed/refs/heads/main/2025-03-22%2012.18.45.jpg)
-[<img src="/Letter10.png" width="280px" hspace="10px" alt="Рекомендательное письмо»">](https://raw.githubusercontent.com/German-D/German-D/main/Letter10.png)
+[<img src="/2025-03-22 12.54.57.jpg" width="280px" hspace="10px" alt="Диплом»">](https://raw.githubusercontent.com/vladsalatbed/vladsalatbed/refs/heads/main/2025-03-22%2012.54.57.jpg)
 
 <br>
 <br>
